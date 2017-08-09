@@ -1,4 +1,4 @@
-# [timo.wtf](https://timo.wtf)
+# [timo.wtf](http://timo.wtf)
 
 I bought a silly domain and need a placeholder, so: [roll safe](http://knowyourmeme.com/memes/roll-safe)!
 
